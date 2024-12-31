@@ -17,7 +17,7 @@
 
 &nbsp;
  
- <p align="center"> Ꮡ Check out my strawpage for more! Send me something if you want :3
+ <p align="center"> Ꮡ Check out my strawpage for more! look at my pronouns page (will probs change) :3
 
 
 &nbsp;
