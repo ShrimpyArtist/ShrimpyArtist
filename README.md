@@ -26,8 +26,8 @@
 &nbsp;
 
 Resources: 
-https://rentry.co/incognito
-https://rentry.co/decor
+[https://rentry.co/incognito](https://rentry.co/eclipsas-resources)
+[https://rentry.co/decor](https://rentry.co/depressant)
 
 
 <!--- 
