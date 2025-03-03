@@ -13,7 +13,7 @@
 	
 <p align="center"> ⛤ Pony town things! ⛤
 <p align="center">ʚɞ Dont be shy to int im nice! ꒰ঌ ૮ ོ .• ༝ •. ོ𑁬 ໒꒱
-<p align="center"> ෆ Usually in jjk area, kny area, mha area or hoyoverse area
+<p align="center"> ෆ Usually in mha area, cr area or hoyoverse area
 <p align="center"> ʚ♡ɞ Im not good with talking and is often quiet ⚘
 <p align="center"> ⏖ Ship int is fine as long as its not weird ⭒⦂
 <p align="center"> ⭒˚｡ Do not copy my ponies w/o my permission pls ༢ུ
