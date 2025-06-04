@@ -14,7 +14,7 @@
 	
 <p align="center"> ⛤ Pony town things! ⛤
 <p align="center">ʚɞ Dont be shy to int im nice! ꒰ঌ ૮ ོ .• ༝ •. ོ𑁬 ໒꒱
-<p align="center"> ෆ Usually in mha area, cr area or hoyoverse area
+<p align="center"> ෆ Usually in Arcane area, Epic area or HoYoverse area
 <p align="center"> ʚ♡ɞ Im not good with talking and is often quiet ⚘
 <p align="center"> ⏖ Ship int is fine as long as its not weird ⭒⦂
 <p align="center"> ⭒˚｡ Do not copy my ponies w/o my permission pls ༢ུ
@@ -22,7 +22,7 @@
 
 &nbsp;
  
- <p align="center"> Ꮡ Check out my strawpage for more! look at my pronouns page (will probs change) :3
+ <p align="center"> Ꮡ Check out my strawpage for more! look at my Linktree for other links! :3
 
 
 &nbsp;
