@@ -17,7 +17,7 @@
 <p align="center"> ⏖ Ship int is fine as long as its not weird ⭒⦂
 <p align="center"> ⭒˚｡ Do not copy my ponies w/o my permission pls ༢ུ
 
-&nbsp; <p align="center"> [Main Rentry](https://rentry.co/ShrimpyArtist)  &nbsp;  [Atabook](https://bonbonshrimp.atabook.org)   &nbsp;  [Strawpage](https://bonbonshrimp.straw.page)
+&nbsp; <p align="center"> [Main Rentry](https://rentry.co/ShrimpyArtist)  &nbsp;  [Atabook](https://bonbonshrimp.atabook.org)   &nbsp;  [Main Strawpage](https://bonbonshrimp.straw.page)
 
 &nbsp;
 
