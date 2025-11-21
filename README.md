@@ -9,7 +9,7 @@
 <p align="center"> ૮₍｡´ᴖ ˔ ᴖ ｡₎ა im 18!! My ocs are males btw!!       ꣼
 <p align="center"> ಿৎ Sometimes im not looking at the screen so i apologize if i ignore you
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6frfpw20zz6aqzm3uricszyet&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=3d727f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6frfpw20zz6aqzm3uricszyet&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6frfpw20zz6aqzm3uricszyet&cover_image=true&theme=novatorem&show_offline=false&background_color=9e9fca&interchange=true&profanity=false&bar_color=9e9fca&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 	
 <p align="center"> ⛤ Pony town things! ⛤
