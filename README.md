@@ -17,7 +17,7 @@
 <p align="center"> ⏖ Ship int is fine as long as its not weird ⭒⦂
 <p align="center"> ⭒˚｡ Do not copy my ponies w/o my permission pls ༢ུ
 
-&nbsp; <p align="center"> [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/main%20rentry.gif)](https://rentry.co/ShrimpyArtist)   &nbsp;   [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/atabook.gif)](https://bonbonshrimp.atabook.org)    &nbsp;   [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/main%20strawpage.gif)](https://bonbonshrimp.straw.page)
+&nbsp; <p align="center"> [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/main%20rentry%20(1).gif)](https://rentry.co/ShrimpyArtist)   &nbsp;   [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/atabook%20(1).gif)](https://bonbonshrimp.atabook.org)    &nbsp;   [![](https://file.garden/aISt_zQ_QkPKQZx-/shiny%20buttons/main%20strawpage%20(1).gif)](https://bonbonshrimp.straw.page)
 
 &nbsp;
 
